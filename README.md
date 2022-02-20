@@ -2,7 +2,7 @@
 
 Matheus Felipe Ferreira Martins
 
-20 de Fevereiro de 2022
+20 de fevereiro de 2022
 
 Matheus Felipe Ferreira Martins concluiu o ensino médio integrado ao curso de Técnico em Farmácia em 2018. Ele ingressou no curso de Bacharelado em Engenharia de Software da Pontifícia Universidade Católica de Minas Gerais (PUC Minas) no primeiro semestre de 2019. O ingresso nessa universidade se deu pela bolsa integral do Programa Universidade para Todos (Prouni) do Ministério da Educação que é disputada pela pontuação obtida no Exame Nacional do Ensino Médio (ENEM). Na época, outra escolha de curso era o Bacharelado em Biomedicina ofertado pelo mesmo programa, devido às semelhanças de atuação com a área de Técnico em Farmácia. Das experiências, habilidades e conhecimentos prévios à graduação e que foram relevantes durante o curso de graduação, pode-se citar: Fluidez e facilidade em resolver desafios lógicos e de matemática; Facilidade de comunicação e bom relacionamento interpessoal; Facilidade de aprendizado e de adaptabilidade; Conhecimento de normas acadêmicas de escritas e formatação de textos e trabalhos.
 
